@@ -18,11 +18,4 @@
 
 
 
-https://github.com/deblinaroy11/PRODIGY_WD_03/assets/137715845/5e27022f-093e-43b5-95b3-ede70d872fd0
-
-<h2>Code: </h2>
-
-
-
-https://github.com/deblinaroy11/PRODIGY_WD_03/assets/137715845/38b5b20f-c44a-4278-b017-8f14838012c4
 
